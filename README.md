@@ -1,1 +1,1 @@
-# Muassisai_talimi_ShobonSharipov
+# Muassisai-talimi
